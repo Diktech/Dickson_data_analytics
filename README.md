@@ -1,1 +1,7 @@
-# Dickson_data_analytics
+# DATA ANALYTICS 
+
+### WORK EXPERIENCE
+
+### EDUCATION 
+
+### PROJECT 
